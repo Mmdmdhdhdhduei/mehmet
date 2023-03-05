@@ -1,0 +1,2 @@
+# mehmet
+Bilinmiyor bu şey
